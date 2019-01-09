@@ -2,4 +2,4 @@
 
 # Facebook:
 
-# Instagram:
+# Instagram: @quikbeauty
